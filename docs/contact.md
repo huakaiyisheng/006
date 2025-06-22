@@ -1,4 +1,4 @@
-# 精东app下载
+# 漫蛙manwa漫画首页
 
 We would love to hear from you! Reach out to us through any of the following methods:
 
